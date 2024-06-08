@@ -5,4 +5,4 @@
 - 📫 
 - 😄 
 - ⚡ Faço criação de Escript e python 
-Se quiser alguma é só entrar em contato comigo
+Se quiser algum é só entrar em contato comigo
